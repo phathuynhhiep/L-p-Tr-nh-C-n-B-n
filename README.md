@@ -1,2 +1,2 @@
-# L-p-Tr-nh-C-n-B-n
+# Lap Trinh Can Ban
 DH20TH2
